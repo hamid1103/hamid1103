@@ -1,9 +1,8 @@
-Hogeschool Rotterdam Student  
+Avans
 Gamer  
-Pogger swag man with poopy code  
 Average Linux Enjoyer
 
-Discord: Arcadian Flame#1037
+Discord: arcadianflame
 
 <!---
 hamid1103/hamid1103 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
